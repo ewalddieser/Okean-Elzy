@@ -209,7 +209,8 @@ Und lass mich nicht mehr los.
 Umarme mich, umarme mich, umarme mich,    
 Lass deinen Frühling kommen.
 
-## STADT DES FRÜHLINGS (**Lwiw ist ukrainischer Stadt. Liegt im Westen der Ukraine. Lwiw \= Lemberg)
+## STADT DES FRÜHLINGS 
+### (Lwiw ist eine ukrainischer Stadt im Westen der Ukraine. Lwiw \= Lemberg)
 
 Warum träume ich immer wieder davon,    
 Wie wir gemeinsam durch unser geliebtes Lwiw spazieren?    
