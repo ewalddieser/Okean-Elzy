@@ -8,7 +8,7 @@
 
 [ICH BIN IM HIMMEL](#ich-bin-im-himmel)
 
-[UMARME MICH](#umarme-dich)
+[UMARME MICH](#umarme-mich)
 
 [STADT DES FRÜHLINGS](#stadt-des-frühlings)
 
