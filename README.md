@@ -1,15 +1,54 @@
-**AUFSTEHEN**
 
-Steh auf\! Trink Tee mit Milch,  
-Bete für eine warme Dusche\!  
-Ohne dich schlafen heute Millionen neuer Herzen\!   
+[AUFSTEHEN](#AUFSTEHEN)
+
+[ICH DANKE DIR](#ICH-DANKE-DIR)
+
+[ICH WILL SO SEHR ZU DIR](#ICH-WILL-SO-SEHR-ZU-DIR)
+
+[RENDEZVOUS](#RENDEZVOUS)
+
+[UMARME MICH](#UMARME-MICH)
+
+[STADT DES FRÜHLINGS](#STADT-DES-FRÜHLINGS)
+
+[GEH NICHT](#GEH-NICHT)
+
+[SCHIEß](#SCHIEß)
+
+[IN DER FEUERLINIE DER LIEBE](#IN-DER-FEUERLINIE-DER-LIEBE)
+
+[NICHT DEIN KRIEG](#NICHT-DEIN-KRIEG)
+
+[SO JEMAND WIE DU](#SO-JEMAND-WIE-DU)
+
+[GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN](#GENAU-AN-DIESEM-TAG-AN-DEM-WIR-WIR-SELBST-WERDEN)
+
+[ALLES WIRD GUT](#ALLES-WIRD-GUT)
+
+[DRAUßEN IST FAST FRÜHLING](#DRAUßEN-IST-FAST-FRÜHLING)
+
+[OHNE DICH](#OHNE-DICH)
+
+[LASS MICH LOS](#LASS-MICH-LOS)
+
+[ICH WERDE NICHT OHNE KAMPF AUFGEBEN](#ICH-WERDE-NICHT-OHNE-KAMPF-AUFGEBEN)
+
+[TALISMAN](#TALISMAN)
+
+
+
+## AUFSTEHEN
+
+Steh auf! Trink Tee mit Milch, 
+Bete für eine warme Dusche!
+Ohne dich schlafen heute Millionen neuer Herzen! 
 Los, stehen bleiben ist nicht erlaubt –   
-Rundherum läuft die Live-Übertragung\!  
+Rundherum läuft die Live-Übertragung!
 Du hast so wenig Zeit übrig,   
 Um allen zu sagen, Um es ihnen ins Gesicht zu sagen, Um es ihnen ins Gesicht zu sagen\!
 
-Steh auf\! Meine Liebe, steh auf\!   
-Meine Liebe, steh auf\!   
+Steh auf\! Meine Liebe, steh auf! 
+Meine Liebe, steh auf! 
 Meine Liebe, steh auf\! Los\! Meine Liebe, los\! Meine Liebe, los\! Fordere mehr\!
 
 Steh auf\! Zeige allen, wo der erste Schritt gesetzt wird.   
@@ -17,17 +56,17 @@ Dein Land wartet auf den Westen oder den Osten,
 Vom Westen bis zum Osten,   
 Vom Westen bis zum Osten.
 
-Steh auf\! Meine Liebe, steh auf\!   
-Meine Liebe, steh auf\! Meine Liebe, steh auf\!  
-Los\! Meine Liebe, los\! Meine Liebe, los\!  
+Steh auf\! Meine Liebe, steh auf! 
+Meine Liebe, steh auf\! Meine Liebe, steh auf!
+Los\! Meine Liebe, los\! Meine Liebe, los!
 Fordere mehr\!
 
-Steh auf\! Meine Liebe, steh auf\!  
-Meine Liebe, steh auf\! Meine Liebe, steh auf\!  
-Los\! Meine Liebe, los\! Meine Liebe, los\!   
+Steh auf\! Meine Liebe, steh auf!
+Meine Liebe, steh auf\! Meine Liebe, steh auf!
+Los\! Meine Liebe, los\! Meine Liebe, los! 
 Fordere mehr\!
 
-**ICH BEDANKE DICH**
+## ICH DANKE DIR
 
 Danke dir  
 Dafür, dass du immer bei mir bist.  
@@ -44,7 +83,7 @@ Dafür, dass du immer bei mir bist.
 Und vielleicht bin ich auch dein Kind,  
 Aber mit dir werde ich der Welt neues Leben schenken\!
 
-**RENDEZVOUS**
+## RENDEZVOUS
 
 Was für ein Nebel sich ringsherum gelegt hat \-  
 Als ob der Himmel meinen Selbstbetrug sieht.  
@@ -57,7 +96,7 @@ Du hast mein Leben komplett auf den Kopf gestellt.
 
 Rande-Rande-Rendezvous... Seitdem schwebe ich,  
 In der Fantasie und in der Realität lebe ich durch dich...  
-Ich lebe durch dich\!  
+Ich lebe durch dich!
 Alles war wie Szenen in einem Film \-  
 Wir wussten nicht, wie es enden würde.  
 Ich wandte meinen Blick nicht ab, du schicktest mir ein „Hi“ mit deinen Augen.  
@@ -70,7 +109,7 @@ Du hast mein Leben komplett auf den Kopf gestellt.
 Rande-Rande-Rendezvous... Seitdem schwebe ich,  
 In der Fantasie und in der Realität lebe ich durch dich... Ich lebe durch dich\!
 
-**ICH WILL SO SEHR ZU DIR**
+## ICH WILL SO SEHR ZU DIR
 
 Ich sehne mich so sehr nach dir,    
 Wie noch nie jemand zuvor,    
@@ -98,7 +137,7 @@ Dass man die ganze Nacht wartet, auf ein Zeichen,
 Solange die Kerze brennt,    
 Solange mein Liebes sagt „Ja“.
 
-**ICH BIN IM HIMMEL,**
+## ICH BIN IM HIMMEL
 
 Dort, wo für manche nur der Februar vor dem Fenster ist,    
 Ist auf meiner Straße schon lange Frühling.    
@@ -139,7 +178,7 @@ Erinnere ich mich an deine Augen,
 Und plötzlich wird alles anders,    
 So warm.
 
-**UMARME MICH**    
+## UMARME MICH    
 **(15 Deutsche singen dieses [Lied](https://www.google.com/search?q=%D0%BE%D0%B1%D1%96%D0%B9%D0%BC%D0%B8+%D0%BD%D1%96%D0%BC%D0%B5%D1%86%D1%8C%D0%BA%D0%BE%D1%8E\&rlz=1CDGOYI\_enUA977UA977\&oq=%D0%BE%D0%B1%D1%96%D0%B9%D0%BC%D0%B8+%D0%BD%D1%96%D0%BC\&gs\_lcrp=EgZjaHJvbWUqBwgBEAAYgAQyBggAEEUYOTIHCAEQABiABDIHCAIQIRigATIHCAMQIRigATIHCAQQIRigATIHCAUQIRigAdIBCDM2MzRqMGo3qAIVsAIB4gMEGAEgXw\&hl=uk\&sourceid=chrome-mobile\&ie=UTF-8\#fpstate=ive\&vld=cid:0f9de576,vid:F7n1FUugCSU,st:0) ⬅️ YouTube )**
 
 Wenn der Tag kommt,    
@@ -203,16 +242,16 @@ Mit dir durch unser geliebtes Lwiw spaziere.
 Dort riecht es nach Frühling, und die Sonne geht unter    
 Am Ufer eines Flusses, den es schon lange nicht mehr gibt\!
 
-**GEH NICHT**
+## GEH NICHT
 
 Geh nicht, bleib bei mir,    
 Und lass alles verschwinden, lass nur diese Nacht bleiben.    
 Geh nicht, bleib du selbst,    
 Ich werde dein Geheimnis unter tausenden Gesichtern erkennen.
 
-Oh Gott\! Wie seltsam ist alles zwischen uns passiert\!    
+Oh Gott\! Wie seltsam ist alles zwischen uns passiert!  
 Vielleicht hat es sich einfach so ergeben zwischen uns.    
-Oh Gott\! Wie seltsam ist alles zwischen uns passiert\!    
+Oh Gott\! Wie seltsam ist alles zwischen uns passiert!  
 Vielleicht hat es sich einfach so ergeben,    
 Dass den Engeln nicht alles gelang.
 
@@ -221,18 +260,18 @@ Wir öffnen gemeinsam Eden, ohne es zu wissen.
 Deine Tränen (Tränen, Tränen) einer jungen Frau    
 Wurden zu Perlen eines neuen hellen Tages.
 
-Oh Gott\! Wie seltsam ist alles zwischen uns passiert\!    
+Oh Gott\! Wie seltsam ist alles zwischen uns passiert!  
 Vielleicht hat es sich einfach so ergeben zwischen uns.    
-Oh Gott\! Wie schnell ist alles zwischen uns passiert\!    
+Oh Gott\! Wie schnell ist alles zwischen uns passiert!  
 Vielleicht haben wir einfach gedacht,    
 Dass den Engeln nicht alles gelang.
 
-Ich flehe dich an, geh nicht\! Geh nicht\!    
-Geh nicht\! Geh nicht\!    
-Verlass mich nicht\! Geh nicht\!    
+Ich flehe dich an, geh nicht\! Geh nicht!  
+Geh nicht\! Geh nicht!  
+Verlass mich nicht\! Geh nicht!  
 Geh nicht\! Geh nicht\!
 
-**SCHIEß**
+## SCHIEß
 
 Worte... Worte, wie ein Schleier.    
 Dort, wo die feine Diagonale verläuft,    
@@ -241,11 +280,11 @@ Und die Nacht fliegt
 Irgendwohin in die Ferne,    
 Ohne uns Züge zu hinterlassen, leider.
 
-Schieß\!    
+Schieß!  
 Sag mir, warum du Angst hast,    
 Diesen letzten Schritt zu tun?    
-Los\!    
-Lass es so sein, wie du es willst\!    
+Los!  
+Lass es so sein, wie du es willst!  
 Ich habe für meine Lektion bezahlt...    
 Leb wohl, mein Engelchen.    
 Los\! Drück den Abzug.
@@ -257,16 +296,16 @@ Und hier das Finale,
 Dort, wo der Kolosseum ringsum steht,    
 Klingt das Metall.
 
-Schieß\!    
+Schieß!  
 Sag mir, warum du Angst hast,    
 Diesen letzten Schritt zu tun?    
-Los\!    
-Lass es so sein, wie du es willst\!    
+Los!  
+Lass es so sein, wie du es willst!  
 Ich habe für meine Lektion bezahlt...    
 Leb wohl, mein Engelchen.    
 Los\! Drück den Abzug.
 
-**IN DER FEUERLINIE DER LIEBE**
+## IN DER FEUERLINIE DER LIEBE
 
 Herbstlicher Boykott. Zwischen dir und mir    
 Ein siebenstelliger Code, den ich nicht knacken kann.    
@@ -288,7 +327,7 @@ An der Feuerlinie warst du mein Geheimnis.
 Sag mir: Warum leben wir an der Feuerlinie?    
 Schweig nicht, schweig nicht.
 
-**NICHT DEIN KRIEG**
+## NICHT DEIN KRIEG
 
 Kampf bei Tagesanbruch, Sonne und Rauch,    
 Kaum jemand weiß, was mit ihm geschehen wird.    
@@ -316,7 +355,7 @@ Doch es hatte keinen Sinn,
 Ich kann das nicht, aber wie kannst du?\!
 
 Die Äste der Viburnum biegen sich,    
-Mama, wir haben nicht für das gebetet\!    
+Mama, wir haben nicht für das gebetet!  
 Wie viele deiner Kinder wird sie noch nehmen,    
 In diesem Krieg, der nicht deiner ist?    
 Die Äste der Viburnum biegen sich,    
@@ -324,7 +363,7 @@ Mama, für wen haben wir gebetet?
 Wie viele deiner Kinder wird sie noch nehmen,    
 In diesem Krieg?
 
-**SO JEMAND WIE DU**
+## SO JEMAND WIE DU
 
 Weißt du, wie sehr der gnadenlose Regen in die Seele schlägt?    
 Als ob er immer nur auf mich gewartet hätte.    
@@ -352,7 +391,7 @@ Gibt es nur einmal im Leben.
 Es fehlt an Reue,    
 Wenn ich ohne dich bin.
 
-**GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN,**
+## GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN
 
 An dem Tag, an dem wir wir selbst werden,    
 Werden Aprikosen blühen, und der unnötige Rückstand wird am Boden verschwinden.
@@ -383,7 +422,7 @@ An dem Tag, an dem wir wir selbst werden,
 Genau an diesem Tag, an dem wir wir selbst werden,    
 Wird die Sonne wieder über uns erscheinen.
 
-**ALLES WIRD GUT**
+## ALLES WIRD GUT
 
 Ich erinnere mich an die Zeit, als die Welt gerade begann,    
 Wer konnte, stieg auf und ging voran.    
@@ -415,7 +454,7 @@ Für jeden von uns,
 Und alles wird gut    
 Unsere Zeit wird kommen.
 
-**DRAUßEN IST FAST FRÜHLING**
+## DRAUßEN IST FAST FRÜHLING
 
 Wenn du meine Gedanken hättest    
 Und ich deine Zauber,    
@@ -443,7 +482,7 @@ Und, oh mein Gott, wie unerwartet verändert sie
 Unsere ganze Zukunft,    
 Unsere Zukunft und unser Leben.
 
-**OHNE DICH**
+## OHNE DICH
 
 Ohne dich ist meine Seele blind,    
 Und mein Körper fühlt sich fremd an.    
@@ -471,7 +510,7 @@ Ich weiß, wo du bist – da bin auch ich,
 Ich wandere, wo du bist – da bin auch ich,    
 Ich fliege, wo du bist – da bin auch ich.
 
-**LASS MICH LOS**
+## LASS MICH LOS
 
 Ich würde denken, du bist ein heller Tag ohne Regen,    
 Doch Tränen auf deinem Gesicht,    
@@ -498,7 +537,7 @@ Denn ich kann nicht mehr weitergehen,
 Lass mich los, ich flehe dich an, lass mich los,    
 Ich will nicht mehr weitergehen.
 
-**ICH WERDE NICHT OHNE KAMPF AUFGEBEN.**
+## ICH WERDE NICHT OHNE KAMPF AUFGEBEN.
 
 Was ist los mit mir, warum konnte ich nicht  
 Rechtzeitig stoppen, alles ist klar.  
@@ -551,7 +590,7 @@ Wer bist du, und wer du auch bist,
 Ich werde nicht ohne Kampf aufgeben.  
 Ich werde nicht ohne Kampf aufgeben.
 
-**TALISMAN**
+## TALISMAN
 
 Nimm das Traurige nicht, nimm es dir nicht zu Herzen,   
 Achte nicht darauf, überstehe alles.   
