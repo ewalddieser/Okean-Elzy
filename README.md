@@ -22,7 +22,7 @@
 
 [SO JEMAND WIE DU](#so-jemand-wie-du)
 
-[GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN](#genau-an-diesem-tag,-an-dem-wir-selbst-werden)
+[GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN](#genau-an-diesem-tag-an-dem-wir-selbst-werden)
 
 [ALLES WIRD GUT](#alles-wird-gut)
 
@@ -394,7 +394,7 @@ Gibt es nur einmal im Leben.
 Es fehlt an Reue,    
 Wenn ich ohne dich bin.
 
-## GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN
+## GENAU AN DIESEM TAG AN DEM WIR WIR SELBST WERDEN
 
 An dem Tag, an dem wir wir selbst werden,    
 Werden Aprikosen blühen, und der unnötige Rückstand wird am Boden verschwinden.
