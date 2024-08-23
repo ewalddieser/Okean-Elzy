@@ -6,7 +6,7 @@
 
 [ICH WILL SO SEHR ZU DIR](#ich-will-so-sehr-zu-dir)
 
-[ICH BIN IM HIMMEL](#ich-bib-im-himmel)
+[ICH BIN IM HIMMEL](#ich-bin-im-himmel)
 
 [UMARME MICH](#umarme-dich)
 
