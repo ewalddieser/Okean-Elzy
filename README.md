@@ -22,7 +22,7 @@
 
 [SO JEMAND WIE DU](#so-jemand-wie-du)
 
-[GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN](#genau-an-diesem-tag-an-dem-wir-selbst-werden)
+[GENAU AN DIESEM TAG, AN DEM WIR WIR SELBST WERDEN](#genau-an-diesem-tag,-an-dem-wir-selbst-werden)
 
 [ALLES WIRD GUT](#alles-wird-gut)
 
